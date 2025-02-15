@@ -3,3 +3,7 @@
 moldy/laika 🌸 she/they 🌸 minor
 
 wip lol
+
+![IMG_3459](https://github.com/user-attachments/assets/120a4a07-071d-472b-bd73-3aa30dee3f65)
+
+ddavid byrne jumpscare!
