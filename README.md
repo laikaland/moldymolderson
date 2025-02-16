@@ -10,6 +10,8 @@ i like object shows, analog horror, crk, pokemon, natm, madoka magica, & lots of
 
 ---------------------------------------
 
+for ponytown: c+h always, dnc, inspiration is fine, boops and kisses are ok
+
 byi: im quite shy so i'm often pretty scared to int. usually i prefer you int first but i'll int first sometimea
 
 i'm not good at social interaction at ALL im so sorry sjdjdks 
@@ -21,6 +23,8 @@ im christian but i wont talk about my faith like at all. it's pretty personal to
 tonetags PLEASE 🙏
 
 dni: basic dni, pro/com/darkship, anti furry, anti therian, anti yume/selfship (verryy heavy dni i will block you sorry not sorry. /srs) 
+
+will block if u make me uncomfortable. i block freely. 
 
 thin ice: (basically: you can interact, just don't talk about these topics around me.) hh/hb, satanists (sorry i just. it makes me uncomfortable a lot of the time), gorillaz ships (2doc, 2nu, murdle? especially ships with noodle) except for like. 2dace i like 2dace
 
