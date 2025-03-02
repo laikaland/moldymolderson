@@ -10,13 +10,15 @@ i like object shows, analog horror, crk, pokemon, natm, madoka magica, & lots of
 
 ---------------------------------------
 
-for ponytown: c+h always, dnc, inspiration is fine, boops and kisses are ok
+for ponytown: c+h always, dnc, inspiration is fine, just don't take too much. boops are okay & kisses are okay just dont make it weird
 
 byi: im quite shy so i'm often pretty scared to int. usually i prefer you int first but i'll int first sometimea
 
 i'm not good at social interaction at ALL im so sorry sjdjdks 
 
 if we're friends i might yap about my interests and what i'm hyperfixated on and what i'm happy about. i just need an outlet sometimes
+
+don't make sexual jokes around me unless we're friends.. light jokes are fine just dont get too freaky yknow
 
 im christian but i wont talk about my faith like at all. it's pretty personal to me and i prefer not to talk about it unless i'm directly asked. so if you're uncomfy w christianity i definitley won't talk about it either
 
