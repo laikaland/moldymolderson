@@ -63,5 +63,6 @@ thin ice: (basically: you can interact, just don't talk about these topics aroun
 ![IMG_5890](https://github.com/user-attachments/assets/adce8040-aafd-45ce-bab3-b4e6c0078e7a)
 ![IMG_5889](https://github.com/user-attachments/assets/903770e6-6b6e-4419-adfb-df8c4db627b2)
 ![IMG_5888](https://github.com/user-attachments/assets/ff54f521-694f-4ce9-b665-05574aef8cf1)
-![IMG_5895](https://github.com/user-attachments/assets/0cbd0c36-5ca3-412c-80eb-5bc87177e041)
+![IMG_5896](https://github.com/user-attachments/assets/79a8072b-40c3-445a-aa87-ca5272da3eb9)
+
 
