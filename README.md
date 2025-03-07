@@ -56,4 +56,13 @@ thin ice: (basically: you can interact, just don't talk about these topics aroun
 ![IMG_5843](https://github.com/user-attachments/assets/e17d1667-e28a-4495-9053-7780dbc692ac)
 ![IMG_5842](https://github.com/user-attachments/assets/eb3453fd-509f-4964-be61-35898133ad0c)
 ![IMG_5841](https://github.com/user-attachments/assets/a175d024-e605-4ead-8367-533e6aea1a51)
+![IMG_5894](https://github.com/user-attachments/assets/96771014-37a9-46ec-b1ce-868c229362d8)
+![IMG_5893](https://github.com/user-attachments/assets/b42f2dd7-2597-4905-8b5c-3a5a112d7f25)
+![IMG_5892](https://github.com/user-attachments/assets/dfc03931-e6f5-44bd-bc75-92c14ecf21bf)
+![IMG_5891](https://github.com/user-attachments/assets/d280d856-494b-41a6-bb1c-bb66b6daf939)
+![IMG_5890](https://github.com/user-attachments/assets/adce8040-aafd-45ce-bab3-b4e6c0078e7a)
+![IMG_5889](https://github.com/user-attachments/assets/903770e6-6b6e-4419-adfb-df8c4db627b2)
+![IMG_5888](https://github.com/user-attachments/assets/ff54f521-694f-4ce9-b665-05574aef8cf1)
+![IMG_5887](https://github.com/user-attachments/assets/a16fdd84-ede8-4d16-a276-0b6ab78833a8)
+![IMG_5886](https://github.com/user-attachments/assets/64802eb2-80d7-4a39-b67a-085f7e0f1b8a)
 
