@@ -1,6 +1,7 @@
-![IMG_5563](https://github.com/user-attachments/assets/e196e67c-bff1-447f-a25f-36f913f32735)
+![IMG_5951](https://github.com/user-attachments/assets/9580a9a5-86f0-4e08-8b2f-a1866a4da0b8)
 
-moldy/laika 🌸 she/they 🌸 minor
+
+moldy/laika 🕸️ she/they 🕸️ minor
 
 ---------------------------------------
 
