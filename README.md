@@ -1,4 +1,5 @@
-![IMG_5951](https://github.com/user-attachments/assets/9580a9a5-86f0-4e08-8b2f-a1866a4da0b8)
+![IMG_5978](https://github.com/user-attachments/assets/a8d290b8-3ccb-4080-aa7f-072016a0fe1d)
+
 
 
 moldy/laika 🕸️ she/they 🕸️ minor
