@@ -2,7 +2,7 @@
 
 
 
-moldy/laika 🕸️ she/they 🕸️ minor
+moldy/laika 🪼 she/they 🪼 minor
 
 ---------------------------------------
 
