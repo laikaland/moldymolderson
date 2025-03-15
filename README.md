@@ -8,7 +8,7 @@ moldy/laika 🪼 she/they 🪼 minor
 
 sharing selfshipper, tree (bfdi) and noodle (gorillaz) are my lovely wives 
 
-i like object shows, analog horror (my favorite is the vintage 8 universe fans plsss int bro), crk, pokemon, natm, madoka magica, & lots of other stuff. i have a big list in my strawpage
+i like object shows, analog horror (vintage8 🙏🙏), crk, pokemon, natm, madoka magica, & lots of other stuff. i have a big list in my strawpage
 
 ---------------------------------------
 
@@ -24,7 +24,7 @@ don't make sexual jokes around me unless we're friends.. light jokes are fine ju
 
 im christian but i wont talk about my faith like at all. it's pretty personal to me and i prefer not to talk about it unless i'm directly asked. so if you're uncomfy w christianity i definitley won't talk about it either
 
-tonetags PLEASE 🙏
+tonetags preffered!!!
 
 dni: basic dni, pro/com/darkship, anti furry, anti therian, anti yume/selfship (verryy heavy dni i will block you sorry not sorry. /srs) 
 
