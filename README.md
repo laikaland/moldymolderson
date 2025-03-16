@@ -12,7 +12,7 @@ i like object shows, analog horror (vintage8 🙏🙏), crk, pokemon, natm, mado
 
 for ponytown: c+h always, dnc, inspiration is fine, just don't take too much. boops are okay & kisses are okay just dont make it weird
 
-byi: im quite shy so i'm often pretty scared to int. usually i prefer you int first but i'll int first sometimea
+byi: im quite shy so i'm often pretty scared to int. usually i prefer you int first but i'll int first sometimes.. im open to making friends plz be my friend
 
 i'm not good at social interaction at ALL im so sorry sjdjdks 
 
