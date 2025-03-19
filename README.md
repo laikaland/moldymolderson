@@ -1,6 +1,6 @@
 ![IMG_5979](https://github.com/user-attachments/assets/46f77ae8-ea0e-4641-b553-5e13405a115e)
 
-moldy/laika 🪼 she/they 🪼 minor
+moldy/laika 🪼 she/they 🪼 minor (13+)
 
 ---------------------------------------
 
