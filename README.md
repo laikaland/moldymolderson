@@ -6,7 +6,7 @@ moldy/laika 🪼 she/they 🪼 minor (13+)
 
 sharing selfshipper, tree (bfdi) and noodle (gorillaz) are my lovely wives 
 
-i like object shows, analog horror (vintage8 🙏🙏), crk, pokemon, natm, madoka magica, & lots of other stuff. i have a big list in my strawpage
+i like object shows, analog horror, crk, pokemon, natm, madoka magica, & lots of other stuff. i have a big list in my strawpage
 
 ---------------------------------------
 
