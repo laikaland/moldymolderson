@@ -1,5 +1,7 @@
 ![IMG_5969](https://github.com/user-attachments/assets/2a901cf4-750e-451e-82fa-060958ba2876)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xb2lsykes5hwpq7dutpl2ilhra&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=342e47&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 moldy/laika 🪼 she/they 🪼 minor (13+)
 
 ---------------------------------------
