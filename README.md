@@ -30,7 +30,7 @@ dni: basic dni, pro/com/darkship, anti furry, anti therian, anti yume/selfship (
 
 will block if u make me uncomfortable. i block freely. 
 
-thin ice: (basically: you can interact, just don't talk about these topics around me.) hh/hb, satanists (sorry i just. it makes me uncomfortable a lot of the time), 2doc (gorillaz ship) (2nu/other noodle ships dni at all they gross me out) 
+thin ice: (basically: you can interact, just don't talk about these topics around me.) hh/hb, satanists (you can talk about it lightly w me but dont talk about it heavily)
 
 ---------------------------------------
 ![IMG_3134](https://github.com/user-attachments/assets/adc7836b-e653-406c-94b8-7e3ddb407ada)
