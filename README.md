@@ -67,5 +67,3 @@ thin ice: (basically: you can interact, just don't talk about these topics aroun
 ![IMG_5888](https://github.com/user-attachments/assets/ff54f521-694f-4ce9-b665-05574aef8cf1)
 ![IMG_5897](https://github.com/user-attachments/assets/5119ea8f-b155-45c0-b595-b48df847a6bc)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xb2lsykes5hwpq7dutpl2ilhra&cover_image=true&theme=default&show_offline=false&background_color=1d1b1b&interchange=false&bar_color=575c98&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
