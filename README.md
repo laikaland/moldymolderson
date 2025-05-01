@@ -6,7 +6,7 @@ moldy/laika 🪼 she/they 🪼 minor (13+, 16-)
 
 ---------------------------------------
 
-sharing selfshipper, tree (bfdi) and noodle (gorillaz) are my lovely wives 
+sharing selfshipper, noodle (gorillaz) and tree (bfdi) are my f/os
 
 i like object shows, analog horror, crk, pokemon, natm, madoka magica, & lots of other stuff. i have a big list in my strawpage
 
