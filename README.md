@@ -8,6 +8,8 @@ moldy/laika 🪼 she/they 🪼 minor (13+, 16-)
 
 sharing selfshipper, noodle (gorillaz) and tree (bfdi) are my f/os
 
+hyperfixating on gorillaz and the magnus archives at the moment
+
 i like object shows, analog horror, crk, pokemon, natm, madoka magica, & lots of other stuff. i have a big list in my strawpage
 
 ---------------------------------------
