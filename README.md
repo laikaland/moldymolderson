@@ -26,6 +26,8 @@ don't make sexual jokes around me unless we're friends.. light jokes are fine ju
 
 im christian but i wont talk about my faith like at all. it's pretty personal to me and i prefer not to talk about it unless i'm directly asked. so if you're uncomfy w christianity i definitley won't talk about it either
 
+im not very talkative, especially around new people. if there's not someone else keeping up the conversation i may loose interest and leave. sorry!
+
 tonetags preffered!!!
 
 dni: basic dni, pro/com/darkship, anti furry, anti therian, anti yume/selfship (verryy heavy dni i will block you sorry not sorry. /srs) 
@@ -33,6 +35,10 @@ dni: basic dni, pro/com/darkship, anti furry, anti therian, anti yume/selfship (
 will block if u make me uncomfortable. i block freely. 
 
 thin ice: (basically: you can interact, just don't talk about these topics around me.) hh/hb, satanists (you can talk about it lightly w me but dont talk about it heavily)
+
+very picky when it comes to gorillaz fans. i don't like ships that much. me befriending you depends on your interpretations of dynamics between the members and your characterization of the members. i dont like murdad/noodle just seeing any of the members as a parent figure . sorry those guys did not take good care of noodle at all ESPECIALLY murdoc
+
+if you infantilize 2d/noodle/really anyone (i guess but i mostly see it with those two) DNI
 
 ---------------------------------------
 ![IMG_3134](https://github.com/user-attachments/assets/adc7836b-e653-406c-94b8-7e3ddb407ada)
